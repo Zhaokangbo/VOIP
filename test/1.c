@@ -1,1 +1,0 @@
-wo shi kang kang
